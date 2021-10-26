@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @zakswap
+- 👀 I’m interested in managing private keys.
+- 🌱 I’m currently learning how to play Pokemon cards.
+- 💞️ I’m looking to collaborate on a cross-chain bridges.
+- 📫 How to reach me ... Discord KJ#9046
